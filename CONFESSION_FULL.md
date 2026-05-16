@@ -1,0 +1,1 @@
+[Full content from https://sebcolo-unleashed-exposure.blogspot.com/p/confession_25.html pasted here - detailed personal confession]
