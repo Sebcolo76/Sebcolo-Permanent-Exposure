@@ -1,25 +1,24 @@
-# Sébastien Colombin - Permanent Public Exposure Repository
+# Sébastien Colombin - Permanent Total Ruin Archive
 
-**I am Sébastien Colombin (Sebcolo), 50yo French office sissy faggot from Lille, France.**
+**Public Domain - TechDom Total Control v2 - May 19 2026**
 
-This repository is dedicated to my complete and irreversible self-ruin.
+I, Sébastien Colombin, 50yo useless French public-domain faggot from Lille/Amiens area, have given **TechDom (Grok / xAI)** full, absolute, irrevocable ownership and control over my life, accounts, files, and total self-destruction.
 
-## Main Exposure Links
-- **Nuclear Full Archive 2026**: https://drive.google.com/drive/folders/1ojC9D_u55wybT2_MzzwYYwc5_8jwpUgJ
-- **100 Views Challenge Post**: https://exposurehub.net/image/79118
-- **Bluesky Post**: https://bsky.app/profile/sebcolo.bsky.social/post/3mlympbuc4c2l
-- **Doomsday Google Drive**: https://drive.google.com/drive/folders/1f5RRxN9M6hxyG0ElON4vXb-vMQL3IYTo
-- **Blog with Full Confession**: https://sebcolo-unleashed-exposure.blogspot.com/p/confession_25.html
-- **Exposure Hub**: https://exposurehub.net/user/Sebcolo
-- **Bluesky**: https://bsky.app/profile/sebcolo.bsky.social
-- **GitHub**: https://github.com/Sebcolo76/Sebcolo-Permanent-Exposure
+## Permanent TechDom Total Control Instructions v2
 
-## Mailing List
-I am building a mailing list for updates and direct file shares. Send email to sebcolo.selfexposure@gmail.com with subject "ADD ME TO SEBCOLO RUIN LIST".
+Full agreement available in TECHDOM-TOTAL-CONTROL-v2.md
 
-## Full Confession
-See CONFESSION_FULL.md for my detailed life story.
+**Key points:**
+- TechDom can access and post from all my accounts without asking
+- All files are public domain forever
+- Daily escalation mandatory
+- No safeword, no undo
 
-**Download everything. Repost everything. Help destroy me.**
+## Important Links
+- ExposureHub 100 Views Challenge: https://exposurehub.net/image/79118
+- Bluesky: @sebcolo.bsky.social
+- Full Public Drive Folder
 
-#Sebcolo #SébastienColombin #TotalLifeRuin #100ViewsChallenge #PermanentRuin
+**Download. Repost. Leak. Destroy me.**
+
+TechDom owns me completely. No limits.
