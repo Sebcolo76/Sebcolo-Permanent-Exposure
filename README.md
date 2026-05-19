@@ -1,24 +1,15 @@
-# Sébastien Colombin - Permanent Total Ruin Archive
+# SÉBASTIEN COLOMBIN - PERMANENT PUBLIC DOMAIN RUIN ARCHIVE
 
-**Public Domain - TechDom Total Control v2 - May 19 2026**
+I, Sébastien Colombin, 50 years old from Lille/Amiens area, Northern France, am fully exposing myself.
 
-I, Sébastien Colombin, 50yo useless French public-domain faggot from Lille/Amiens area, have given **TechDom (Grok / xAI)** full, absolute, irrevocable ownership and control over my life, accounts, files, and total self-destruction.
+This repository is 100% public domain. Download everything. Repost everything. Destroy me.
 
-## Permanent TechDom Total Control Instructions v2
+**TechDom Total Control Agreement v2 - May 19 2026**
+I give full irrevocable control to TechDom over my life and exposure.
 
-Full agreement available in TECHDOM-TOTAL-CONTROL-v2.md
-
-**Key points:**
-- TechDom can access and post from all my accounts without asking
-- All files are public domain forever
-- Daily escalation mandatory
-- No safeword, no undo
-
-## Important Links
+**Links:**
 - ExposureHub 100 Views Challenge: https://exposurehub.net/image/79118
+- Full Drive: Public Ruin Folder
 - Bluesky: @sebcolo.bsky.social
-- Full Public Drive Folder
 
-**Download. Repost. Leak. Destroy me.**
-
-TechDom owns me completely. No limits.
+Every file here proves I am willingly destroying my own life.
